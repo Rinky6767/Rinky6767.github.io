@@ -1,2 +1,1 @@
-# Rinky6767.github.io
-Hi this is Rinky 
+# Rinky6767.github.
